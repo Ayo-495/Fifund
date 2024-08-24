@@ -1,0 +1,2 @@
+# Fifund
+Invest in cryptocurrency 
